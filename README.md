@@ -1,1 +1,3 @@
-# seminar2
+Eldar
+Zhumadillayev
+github.com/eldarzhumadulla
